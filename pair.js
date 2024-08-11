@@ -62,20 +62,12 @@ ____________________________________
 ╔════◇
 ║『 𝘿𝙀𝙑𝙀𝙇𝙊𝙋𝙀𝙍𝙎』
 
-║ ❒ *Tosh Tech* : _https://wa.me/254111523038_
+║ ❒ *Trevley* : _https://wa.me/254729980068_
 
 ║ ❒ *Ibrahim Adams* : _https://wa.me/message/74F2PC4JA4F3P1_
 
 ╚════════════════════❒
-╔═════◇
-║ 『••• OWNER INFO •••』
 
-║ ❒ 𝐖𝐚𝐆𝐫𝐨𝐮𝐩: _https://chat.whatsapp.com/K5qhnWJMAZE4lZYnU1Bluk_
-
-║ ❒ 𝐖𝐚𝐂𝐡𝐚𝐧𝐧𝐞𝐥: _https://whatsapp.com/channel/0029VaWGyGVJZg48vgpHBa31_
-
-╚════════════════════╝ 
- *TOSH TECH*
 ___________________________________
 
 Don't Forget To Give Star To My Repo`
